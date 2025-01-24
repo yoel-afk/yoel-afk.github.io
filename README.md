@@ -1,1 +1,0 @@
-# yoel-afk.github.io
